@@ -1,4 +1,4 @@
-
+Experience minecraft like never before with minecraft Script rare, the #1 Script. Includes anti-ban and teleport for unbeatable performance.
 
 
 
